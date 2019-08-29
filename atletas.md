@@ -6,5 +6,6 @@ Rafaela Silva
 Ronda Rousey
 Rafaela Silva  
 Neymar
-Cristiano Ronaldo
 Messi
+Cristiano Ronaldo
+Cristiane Rozeira
